@@ -1,0 +1,1 @@
+# JohnPaul2-PapacySimulatorPrivacyPolicy
